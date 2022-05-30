@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Heba Ahmed
+- 👀 I’m interested in Data Analytics
+- 🌱 I’m currently learning and seeking to be a Data Analyst
+- 📫 my LinkedIn account https://www.linkedin.com/in/heba-ahmed-%D9%87%D8%A8%D8%A9-%D8%A7%D9%84%D9%84%D9%87-7b235a221/
